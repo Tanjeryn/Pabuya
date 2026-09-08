@@ -1,2 +1,2 @@
 # Pabuya
-Pabuya is a simple matching application that connects local small businesses with everyday people who create videos or podcasts.
+I CANNOT COMPLETE THIS UNDER 20 MINS SIR, I HAVE 20 MINS LEFT ON MY CLOCK
