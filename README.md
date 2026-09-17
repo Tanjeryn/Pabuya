@@ -1,2 +1,2 @@
 # Pabuya
-I CANNOT COMPLETE THIS UNDER 20 MINS SIR, I HAVE 20 MINS LEFT ON MY CLOCK
+this is a real passion project of mine sir, so remember me when i make it to the top!!
